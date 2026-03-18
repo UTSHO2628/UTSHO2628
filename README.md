@@ -1,5 +1,5 @@
 # 💫 About Me:
-I am a passionate programmer, AI & automation enthusiast, and digital marketing expert, blending technology with entrepreneurship to create innovative solutions. I specialize in building intelligent automation software, optimizing digital strategies, and developing impactful web and AI-based projects. My goal is to drive efficiency, growth, and transformation through smart technology and creative problem-solving.
+I am a passionate programmer, AI & automation enthusiast, and digital marketing expert, blending technology with entrepreneurship to create innovative solutions. I specialize in building intelligent automation software, optimizing digital strategies, and developing impactful web and AI-based projects. My goal is to drive efficiency, growth, and transformation through smart technology and creative problem-solving..
 
 
 ## 🌐 Socials:
